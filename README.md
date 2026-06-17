@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am a Developer.<br>I crunch codes and build Projects"<br>Math Graduate ---->Pursuing MCA ---->Building state-of-the-art Web Apps.
+Mind to build 
 
 
 ## 🌐 Socials:
